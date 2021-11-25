@@ -1,0 +1,1 @@
+datos en comun de crear y editar
